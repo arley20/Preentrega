@@ -1,2 +1,0 @@
-# Preentrega
-Arley Carrasquel
